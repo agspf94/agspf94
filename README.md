@@ -1,1 +1,1 @@
-![image info](Resume-Anderson-Fantin.png)
+![image info](Resume-Anderson-Fantin-1.png)
